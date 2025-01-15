@@ -1,0 +1,3 @@
+https://file.notion.so/f/f/a10def78-afa4-4b9a-a52d-368dd07e723a/a1592f24-11a1-4090-a16c-e1b576a67015/BASIC_STATISTICS.pdf?table=block&id=17cd3a68-4ab2-801d-b61d-f3647b1076d0&spaceId=a10def78-afa4-4b9a-a52d-368dd07e723a&expirationTimestamp=1736985600000&signature=ucH5_ovFTjuUrff6eJ7ofOb2IXzf3RAXk4YVRxSPsIE&downloadName=BASIC+STATISTICS.pdf
+https://www.notion.so/STATS-COPY-178d3a684ab280779851c6fed6fd6be7
+https://file.notion.so/f/f/a10def78-afa4-4b9a-a52d-368dd07e723a/d1f50875-0d38-4cb0-a7e6-97afe575c2e1/StatisticsFINALEXAM_RAISYA.pdf?table=block&id=17cd3a68-4ab2-8071-8426-ce3f17b4d8df&spaceId=a10def78-afa4-4b9a-a52d-368dd07e723a&expirationTimestamp=1736985600000&signature=5n5BPiVctBV6CaGnChhmghp41qflN3K4a_nV0m1SXyg&downloadName=StatisticsFINALEXAM_RAISYA.pdf
